@@ -1,0 +1,1 @@
+# LenoveH3Specs
